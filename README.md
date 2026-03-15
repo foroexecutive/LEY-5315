@@ -1,1 +1,2 @@
 # LEY-5315
+Puede afirmarse que la ley 5315, ni inició en el país la construcción de carreteras, ni su acción tuvo importancia alguna en lo referente a la complementación del tráfico ferroviario. Todo lo contrario, se puede expresar que las empresas administradoras del fondo de caminos desviaron la contribución del 3%hacia el mejoramiento, muy medroso, por cierto, de algunos caminos de acceso a las estaciones ferroviarias que más les interesaban, sin introducir métodos constructivos ni propender a la especialización del país en esta nueva técnica.
